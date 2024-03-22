@@ -1,1 +1,1 @@
-![Gif wyszedł i go nie będzie!](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif](https://wykop.pl/cdn/c3201142/comment_8SlIdjgUp1OeudNbHnCS98yAFjwM5TJW.gif)https://wykop.pl/cdn/c3201142/comment_8SlIdjgUp1OeudNbHnCS98yAFjwM5TJW.gif)
+![alt](https://wykop.pl/cdn/c3201142/comment_8SlIdjgUp1OeudNbHnCS98yAFjwM5TJW.gif)
